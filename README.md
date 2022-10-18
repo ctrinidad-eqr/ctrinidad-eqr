@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ctrinidad-eqr
-- 👀 I’m interested in Emotional intelligence and Technology
+- 👀 I’m interested in Emotional Intelligence, Leadership, and Technology
 - 🌱 I’m currently learning UI Design
 - 💞️ I’m looking to collaborate on all things Technology
 - 📫 How to reach me ctrinidad@eqr.com
